@@ -1,0 +1,3 @@
+COLDSUSHI200 (Дымников Владимир Сергеевич, родился 23 мая) — российский рэп-исполнитель в жанре hyperpop/rap, родом из Москвы.
+
+COLDSUSHI200 (Vladimir Sergeevich Dymnikov, born May 23) — Russian hyperpop/rap artist hailing from Moscow.
